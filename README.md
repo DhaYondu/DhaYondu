@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @DhaYondu
 - 👀 I’m interested in Cybersecurity and software engineering
 - 🌱 I’m currently learning, yeah at CUEA
-- 💞️ I’m looking to collaborate on 
 - 📫 How to reach me +254115780562
 - 😄 Pronouns: Mr. Yondu
 - ⚡ Fun fact: Nice_Guy
